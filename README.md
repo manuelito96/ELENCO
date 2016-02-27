@@ -8,7 +8,7 @@
 
 4) CANETTO FABIO :
 
-5) CANTARELLI ROBERTO : itis-scano-books.launchrock.com
+5) CANTARELLI ROBERTO : http://itis-scano-books.launchrock.com/
 
 6) CASTI SIMONE :
 
