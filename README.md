@@ -10,7 +10,7 @@
 
 5) CANTARELLI ROBERTO : http://itis-scano-books.launchrock.com/
 
-6) CASTI SIMONE :
+6) CASTI SIMONE :device-for-gestione.launchrock.com
 
 7) CONCAS EMANUELE : http://conema.github.io/landingpage
 
